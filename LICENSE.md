@@ -1,4 +1,4 @@
-
+Get the ultimate Adobe Photoshop for macOS plugin with advanced Plugin for Adobe Photoshop for macOS - layer styles and color correction. Featuring layer styles and color
 
 
 
